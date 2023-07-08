@@ -1,6 +1,5 @@
 # DailyMethods
-Time
-# Netflix Working Trick (NO CC Required) 
+Netflix Working Trick (NO CC Required) 
 
 Note : This Trick Will Work On Mobile Devices Don't Try on Netflix site. 
 
