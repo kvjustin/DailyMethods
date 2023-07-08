@@ -1,4 +1,4 @@
-# DailyMethods
+# DailyMethods (Updated at 8 jul 2023 10:50AM)
 Netflix Working Trick (NO CC Required) 
 
 Note : This Trick Will Work On Mobile Devices Don't Try on Netflix site. 
